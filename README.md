@@ -1,2 +1,2 @@
 # cv
-My Basic CV
+My Professional CV
